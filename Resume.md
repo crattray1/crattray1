@@ -1,3 +1,3 @@
 Corey Rattray
-
-Northeastern student going into computer science
+Computer Science
+Expected to graduate Spring 2029
